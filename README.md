@@ -4,7 +4,7 @@
 
 **在本文中，我将总结一些稳定、可靠的老牌翻墙机场，并根据稳定性、连接速度、客户端易用性和服务器线路数量的综合排名，如果您想要更详细的机场评测想买一个[好用的翻墙软件](https://github.com/goeep/TOP6)，那么不妨从其中选择一个。**
 
-![tuijianvpn](https://github.com/user-attachments/assets/810be942-4fe6-4313-9083-e4e5ef43b5a8)
+![tuijianvpn](https://files.superbed.cn/proxy/7468686c6f2633337a7570796f326f696c796e7e7978327f72336f68736e793375717d7b796f332579337f2d332a2b2d7f7924257f782e257879782d7d247f287825797f2d32766c7b.jpg)
 
 
 
