@@ -4,7 +4,7 @@
 
 **在本文中，我将总结一些稳定、可靠的老牌翻墙机场，并根据稳定性、连接速度、客户端易用性和服务器线路数量的综合排名，如果您想要更详细的机场评测想买一个[好用的翻墙软件](https://github.com/goeep/TOP6)，那么不妨从其中选择一个。**
 
-![image](https://github.com/user-attachments/assets/5bbaf2e6-dc00-4234-b9fa-73a3c12cb33d)
+![image](https://www.cnvintage.org/assets/files/2024-12-10/1733814665-930848-image.png)
 
 
 
